@@ -13,9 +13,9 @@
 
 - 💬 Ask me about **game development, 3d art**
 
-- 📫 How to reach me **teoflosmelese12345678@gmail.com**
+- 📫 How to reach me **theoflosmelese123456789@gmail.com**
 
-- ⚡ Fun fact **i'm fat 😁**
+- ⚡ Fun fact **#**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
